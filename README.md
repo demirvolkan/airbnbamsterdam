@@ -28,3 +28,7 @@ Licensing, Authors, Acknowledgements:
 
 Special thanks to
 https://chrisalbon.com
+
+&
+
+Wonderful Udacity tutors and their codes
