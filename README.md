@@ -31,4 +31,4 @@ https://chrisalbon.com
 
 &
 
-Wonderful Udacity tutors and their codes
+Wonderful Udacity instructors and their codes
