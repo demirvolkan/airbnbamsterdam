@@ -16,6 +16,13 @@ Does communication skills differ among neighborhooods?
 What are the main drivers of price?
 On what the hosts should focus to improve their income?
 
+Results:
+
+My Medium story can be found here:
+
+https://medium.com/@volkandemir_60605/can-you-earn-more-with-your-airbnb-apartment-in-amsterdam-19854d6707fa
+
+
 Licensing, Authors, Acknowledgements:
 
 
